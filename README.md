@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Claudia Pereira Oliveira or Claudia de Windt 🙂
+👋 Hi, I’m Claudia Pereira Oliveira or Claudia de Windt 🙂
 
 
